@@ -1,0 +1,1 @@
+<p>AdsenseBoot is High CTR adsense bootstrap template. Its easy to convert into wordpress or blogger template. You free to use it, forever</p>
